@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @maqsoodh19
+- 👀 I’m interested in learning new technologies and building great things
+- 🌱 I’m currently learning... lots of things
+- 📫 How to reach me by through maqsoodh19@gmail.com
